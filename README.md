@@ -1,0 +1,9 @@
+- 👋 Hi, I’m Rahulreddychalla
+- 👀 I’m interested in highlighting visualization dashboards.
+- 🌱 I’m currently aspiring Data analytics...
+- 💞️ I’m looking to collaborate with companys...
+- 📫 How to reach me via mail
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Unexpected mistakes
+--->✨ I'm Ecstatic to align my skills towards company growth with innovative dashboards and reports thourgh visualization.
+--->✨ Passionate to make a remarkable visual dashboards.
